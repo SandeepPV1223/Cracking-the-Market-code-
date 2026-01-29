@@ -98,8 +98,8 @@ P.V.Sandeep
 Andhra Pradesh, India
 Email: sandeeppv1223@gmail.com
 
-LinkedIn: (add your LinkedIn link)
-GitHub: (add your GitHub profile link)
+LinkedIn: 
+GitHub: 
 
 SUPPORT
 
